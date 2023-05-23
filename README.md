@@ -2,6 +2,6 @@
 
 Demo link : https://drive.google.com/drive/folders/1DMJMaP-5yGBrhBi8qMhDq8hiTUqIjJVB?usp=share_link
 
-Project report: https://drive.google.com/drive/folders/1GwWxKcCeSL2RUUQ-Wmu86KXbFgtL2hlH?usp=sharing
+Project report: https://docs.google.com/document/d/16TCUw5vm7RpwMfS3wxcZnTp3C7IbuWnszi1kT-5vnMg/edit?usp=sharing
 
 PPT: https://drive.google.com/drive/folders/1m4GNhw8K5AGLBMBqnWfgOCSgo_UUqfWM?usp=share_link
